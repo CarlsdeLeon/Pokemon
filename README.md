@@ -1,6 +1,6 @@
 # Pokemon
  Carlos de Leon 1626423
-
+Rolando Duque de Leon 1559223
 
 ## MI SERIE FAVORITA 🐦
 
