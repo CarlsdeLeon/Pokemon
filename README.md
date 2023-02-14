@@ -7,4 +7,4 @@
 Pokemon es mi serie favorita por que te adentra en un mundo lleno de criaturas magicas 
 llamadas pokemon que se usan para darse madrasos entre si asi asi ganar plata 😉✌
 
-![estos son algunos pokemon](https://www.google.com/url?sa=i&url=https%3A%2F%2Fcustom-cursor.com%2Fes%2Fcollection%2Fpokemon&psig=AOvVaw0FnngdLQ8u7KkeqtEC95Rt&ust=1676472733030000&source=images&cd=vfe&ved=0CBAQjRxqFwoTCICHweGhlf0CFQAAAAAdAAAAABAJ)
+![estos son algunos pokemon](https://www.google.com/search?q=imagenes+de+pokemon&sxsrf=AJOqlzU8qKXWYLaiVUPO-BcxQOTCF_wL1w:1676386973020&source=lnms&tbm=isch&sa=X&ved=2ahUKEwjet6GQpJX9AhUlRTABHedwCBgQ_AUoAXoECAEQAw#imgrc=vmn9FvALG8qpvM)
